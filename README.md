@@ -27,3 +27,16 @@
 ːneonbrːːneonbrːːneonbrːːneonbrːːneonbrːːneonbrːːneonbrːːneonbrːːneonbrːːneonbrː [b]ːneonbrː Para mi yo del FUTURO ːsoatomː ːneonblː[b] ːneonblːːneonblːːneonblːːneonblːːneonblːːneonblːːneonblːːneonblːːneonblːːneonblːːneonblːːneonblː
 
 ːArrowFGPː [spoiler] You study english so you are no longer translating ːluvː. Claro π , ñaña ñañaña ñañañaña. ːsteamhappyː [/spoiler]
+
+END
+----------------------------------------------------------------------------------------------------------------------------------------------
+READ ME
+----- HEY BUY IN STEAM STORE : -----
+
+:neonblː
+ːsteamhappyː
+ːs_lineː
+ːy_starː
+ːs_lineː
+ːluvː
+:neonrrː
