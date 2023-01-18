@@ -40,3 +40,26 @@ READ ME
 ːs_lineː
 ːluvː
 :neonrrː
+
+
+----------------------------------------------------------------------------------------------------------------------------------------------
+Music, road to imortal 
+|``--,...　　　　　``　＊ |
+　　i ヽ　　　　　　　　　　　:;
+　　\　彡　　　　 　　　　　　ミ
+　　〉　　　　●　　.　　●　　　ミ
+　　彡　 　 ``　　　人　　　　　ミ
+　 彡:　　　　　 　　　　 　　　 　ミ
+,︵I:　　　　　　　つ❤️⌒　　
+
+
+:PinkMagnet::CyanMagnet::wavetree::retrosun2000::wavetree::CyanMagnet::PinkMagnet::toadPepe:
+:CyanMagnet::wavey::wavey::PinkMagnet::toadPepe::PinkMagnet::wavey::wavey::CyanMagnet:
+:PinkMagnet::wavey::wavey::wavey::CyanMagnet::wavey::wavey::wavey::PinkMagnet:
+:CyanMagnet::wavey::wavey::wavey::wavey::wavey::wavey::wavey::CyanMagnet:
+:toadPepe::PinkMagnet::wavey::wavey::wavey::wavey::wavey::PinkMagnet::toadPepe:
+:toadPepe::toadPepe::CyanMagnet::wavey::wavey::wavey::CyanMagnet::toadPepe::toadPepe:
+:toadPepe::toadPepe::toadPepe::PinkMagnet::wavey::PinkMagnet::toadPepe::toadPepe::toadPepe:
+:wavetree::retrosun2000::wavetree::toadPepe::CyanMagnet::toadPepe::wavetree::retrosun2000::wavetree:
+
+
